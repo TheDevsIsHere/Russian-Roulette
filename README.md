@@ -20,9 +20,6 @@ If you wanna do a bet with your friend is ideal.
 You better not loose....
 
 # Meme ⬇️
-https://github.com/TheDevsIsHere/Russian-Roulette/assets/99741291/e6c4db20-17bc-46b6-a667-4ee86d57a194
-
-
 https://github.com/TheDevsIsHere/Russian-Roulette/assets/99741291/d99ab1b5-01a1-4f3e-8427-51006a9b9811
 
 
