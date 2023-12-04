@@ -23,6 +23,10 @@ You better not loose....
 https://github.com/TheDevsIsHere/Russian-Roulette/assets/99741291/e6c4db20-17bc-46b6-a667-4ee86d57a194
 
 
+https://github.com/TheDevsIsHere/Russian-Roulette/assets/99741291/d99ab1b5-01a1-4f3e-8427-51006a9b9811
+
+
+
 
 # ⚠️Warning⚠️
 **This code is for educational purposes only. Using it may result in the deletion of important files. The author assumes no responsibility for any potential damages. **
